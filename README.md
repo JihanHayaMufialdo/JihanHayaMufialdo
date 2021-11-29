@@ -1,4 +1,4 @@
-- 🌱 Hi, I’m Jihan Haya Mufialdo
+- 🌱 Hi, I’m Jihan Haya Mufialdo !
 - 👀 Student at University of Lampung.
 - 👀 Majoring in Computer Science
 
